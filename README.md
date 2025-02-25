@@ -22,3 +22,9 @@
 
 ![](https://mhenderson.github.io/photo-serve/png/2025/02/sheep.png)
 
+#### 9th February 2025
+
+##### Cows on Poyntington Hill, Dorset
+
+![](https://mhenderson.github.io/photo-serve/png/2025/02/cow-family.png)
+
