@@ -28,3 +28,9 @@
 
 ![](https://mhenderson.github.io/photo-serve/png/2025/02/cow-family.png)
 
+#### 25th February 2025
+
+##### A ram in Sherborne, Dorset
+
+![](https://mhenderson.github.io/photo-serve/png/2025/02/ram.png)
+
