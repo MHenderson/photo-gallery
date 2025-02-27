@@ -34,3 +34,9 @@
 
 ![](https://mhenderson.github.io/photo-serve/png/2025/02/ram.png)
 
+#### 27th February 2025
+
+##### A farmhouse on Marston Road, Sherborne, Dorset
+
+![](https://mhenderson.github.io/photo-serve/png/2025/02/farmhouse.png)
+
