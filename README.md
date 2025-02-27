@@ -4,6 +4,24 @@
 
 ### February
 
+#### 27th February 2025
+
+##### A farmhouse on Marston Road, Sherborne, Dorset
+
+![](https://mhenderson.github.io/photo-serve/png/2025/02/farmhouse.png)
+
+#### 25th February 2025
+
+##### A ram in Sherborne, Dorset
+
+![](https://mhenderson.github.io/photo-serve/png/2025/02/ram.png)
+
+#### 9th February 2025
+
+##### Cows on Poyntington Hill, Dorset
+
+![](https://mhenderson.github.io/photo-serve/png/2025/02/cow-family.png)
+
 #### 2nd February 2025
 
 ##### Cows in a barn on Poyntington Hill, Dorset
@@ -21,22 +39,4 @@
 ##### A sheep on Poyntington Hill, Dorset
 
 ![](https://mhenderson.github.io/photo-serve/png/2025/02/sheep.png)
-
-#### 9th February 2025
-
-##### Cows on Poyntington Hill, Dorset
-
-![](https://mhenderson.github.io/photo-serve/png/2025/02/cow-family.png)
-
-#### 25th February 2025
-
-##### A ram in Sherborne, Dorset
-
-![](https://mhenderson.github.io/photo-serve/png/2025/02/ram.png)
-
-#### 27th February 2025
-
-##### A farmhouse on Marston Road, Sherborne, Dorset
-
-![](https://mhenderson.github.io/photo-serve/png/2025/02/farmhouse.png)
 
