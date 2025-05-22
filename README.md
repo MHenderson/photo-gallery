@@ -2,6 +2,24 @@
 
 ## 2025
 
+### April
+
+#### 26th April 2025
+
+##### A fledling sparrow in the branches of an apple tree. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/04/fledgling-sparrow.png)
+
+#### 12th April 2025
+
+##### A nuthatch taking-off from a branch. Hanover Wood, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/04/nuthatch-launch.png)
+
+##### A carpet of bluebells. Hanover Wood, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/04/bluebell-wood.png)
+
 ### March
 
 #### 16th March 2025
