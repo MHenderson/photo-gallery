@@ -1,5 +1,61 @@
 # 2025
 
+## June
+
+### 30th June 2025
+
+#### Blackbird. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/06/blackbird.png)
+
+### 29th June 2025
+
+#### Sheep on Poyntington Hill. Poyntington, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/06/sheep-1.png)
+
+#### Sheep on Poyntington Hill. Poyntington, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/06/sheep-2.png)
+
+#### Willow and Clouds. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/06/sky.png)
+
+### 27th June 2025
+
+#### Cat. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/06/cat.png)
+
+### 22nd June 2025
+
+#### Goathill, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/06/goathill.png)
+
+### 20th June 2025
+
+#### Sparrow. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/06/sparrow.png)
+
+### 15th June 2025
+
+#### Lyscombe Hill. Melcombe Bingham, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/06/lyscombe.png)
+
+### 11th June 2025
+
+#### Poppies. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/06/poppies.png)
+
+#### Oborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/06/oborne.png)
+
 ## May
 
 ### 18th May 2025
