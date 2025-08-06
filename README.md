@@ -1,5 +1,87 @@
 # 2025
 
+## July
+
+### 28th July 2025
+
+#### Stationery Items.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/stationery.png)
+
+#### Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/sherborne-pole-2.png)
+
+### 26th July 2025
+
+#### Cows. Goathill, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/goathill-cows.png)
+
+### 25th July 2025
+
+#### Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/sherborne-field-2.png)
+
+### 24th July 2025
+
+#### Seagull. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/seagull-sitting.png)
+
+#### Seagull. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/seagull-launch.png)
+
+### 14th July 2025
+
+#### Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/sherborne-pole.png)
+
+#### Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/sherborne-field.png)
+
+### 13th July 2025
+
+#### Poyntington, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/poyntington-brown.png)
+
+#### Crow. Poyntington, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/crow-field.png)
+
+### 11th July 2025
+
+#### Starling. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/starling-clematis.png)
+
+#### Sparrow. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/sparrow-fence.png)
+
+#### Starling. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/starling-roof.png)
+
+#### Starling. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/starling-lawn.png)
+
+#### Blackbird. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/blackbird-gap.png)
+
+### 2nd July 2025
+
+#### Butterfly. Sherborne, Dorset.
+
+![](https://mhenderson.github.io/photo-serve/png/2025/07/butterfly-silhouette.png)
+
 ## June
 
 ### 30th June 2025
